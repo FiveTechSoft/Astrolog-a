@@ -1,0 +1,2 @@
+# Astrolog-a
+Interpretaciones astrológicas
